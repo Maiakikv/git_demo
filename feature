@@ -1,2 +1,0 @@
-rame
-ra vici
